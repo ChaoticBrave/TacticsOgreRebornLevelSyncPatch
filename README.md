@@ -13,6 +13,7 @@ If you queries about the patcher, the best places to contact me are either one o
 Discord:
 
 Personal Discord: https://discord.gg/xmgKtf2tN6
+
 Kingdom of Ivalice: https://discord.gg/WZ2DbjHXJF
 
 Twitter:
